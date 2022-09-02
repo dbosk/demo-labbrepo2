@@ -3,6 +3,6 @@ Här är mina labbar
 
 emelie was here !!! B-)
 Viktor was also here :)
-Daniel was here first.
+Daniel was also here, not first.
 
 Snart är övningen slut.
